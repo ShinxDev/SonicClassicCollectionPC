@@ -1,1 +1,1 @@
-Sonics Window Is Just Sonic Origins But Better. I Cant Port Sonic CD And Im Just Including Sonic 3 AIR Instead Of Porting Sonic 3 So Il Find A Way To Make Up For CD
+Sonic Classics Collection PC Is Kind Of Just Sonic Classics Collection For The DS, But With Some More Hidden Gems In It!
