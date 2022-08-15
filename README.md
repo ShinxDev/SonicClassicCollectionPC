@@ -1,3 +1,1 @@
-Sonic 1 And Sonic 2 For The PC Because They Were Removed From Steam.
-Just Ports Of The Phone Versions.
-If you Want To Change FullScreen And Borderless, Go Into Assets And Edit Settings.ini.
+Sonics Window Is Just Sonic Origins But Better. I Cant Port Sonic CD And Im Just Including Sonic 3 AIR Instead Of Porting Sonic 3 So Il Find A Way To Make Up For CD
